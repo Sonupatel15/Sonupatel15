@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **19358sonupatel@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1fr_iqptOgHqGipUIXLbb3ZXQ01mhmi7s/view?usp=sharing](https://shorturl.at/xVK2M)
+- 📄 Know about my experiences [https://shorturl.at/xVK2M](https://shorturl.at/xVK2M)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
